@@ -1,1 +1,0 @@
-# Informatika-v-priridnych-vedach
